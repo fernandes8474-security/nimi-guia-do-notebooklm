@@ -1,1 +1,1 @@
-# nimi-guia-do-notebooklm
+# mini-guia-do-notebooklm
